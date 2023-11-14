@@ -1,2 +1,0 @@
-# Comy
-fasyafafafa
